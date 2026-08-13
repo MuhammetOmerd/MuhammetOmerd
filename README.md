@@ -1,4 +1,4 @@
-# Hello I am Muhammet 👋
+# Hello I am Muhammed Nur Hamduomer 👋
 
 🎓 1st-year Computer Engineering student at Istanbul University of Health and Technology  
 
